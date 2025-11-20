@@ -21,6 +21,6 @@ Please keep in mind:
 
 ---
 
-Feel free to explore my projects, and if you're interested in collaborating or discussing opportunities, don't hesitate to reach out.
+Feel free to explore my projects.
 
 Thank you for visiting!
